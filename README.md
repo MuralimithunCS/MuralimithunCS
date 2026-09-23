@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...DATA SCIENCE, WEB DEVOLOPMENT 
 - 🌱 I’m currently learning ...DATA SCIENCE 
 - 💞️ I’m looking to collaborate on ...DATA SCIENCE PROJRCTS AND MACHINE LEARNING PROJECT
-- 📫 How to reach me ...muraliyadhav34@gmail.com
+- 📫 How to reach me ...muraliyadhav285@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
